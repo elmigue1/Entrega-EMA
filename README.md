@@ -1,2 +1,7 @@
 # Entrega-EMA
-Con amor ♥
+
+Por: 
+Miguel Roldán 
+Rafael Mateus
+Pablo Buitrago
+Santiago Isaza
